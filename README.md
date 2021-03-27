@@ -12,3 +12,5 @@ angeles
 [A[C[C[C[[B[B[D[A[Cmarde[B[D[Dlos[3~[3~[C[C[
 angeles
 q
+
+## HOLA OSCAR GRACIAS POR UNIR AL GRUPO A ESTUDIAR
