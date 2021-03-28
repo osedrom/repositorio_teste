@@ -19,6 +19,13 @@ cristinanaaulaO
 # Obrigada oscar
 
 
+ Namaste2021-patch-2
+Muito legal esta pratica
+
 
 legallll
+ cristinanaaulaO
 main
+
+ main
+ main
