@@ -13,4 +13,12 @@ angeles
 angeles
 q
 
+cristinanaaulaO
 ## HOLA OSCAR GRACIAS POR UNIR AL GRUPO A ESTUDIAR
+
+# Obrigada oscar
+
+
+
+legallll
+main
