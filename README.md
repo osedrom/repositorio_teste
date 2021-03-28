@@ -13,6 +13,9 @@ angeles
 angeles
 q
 
+cristinanaaulaO
+## HOLA OSCAR GRACIAS POR UNIR AL GRUPO A ESTUDIAR
+
 # Obrigada oscar
 
 
@@ -21,4 +24,8 @@ Muito legal esta pratica
 
 
 legallll
+ cristinanaaulaO
+main
+
+ main
  main
